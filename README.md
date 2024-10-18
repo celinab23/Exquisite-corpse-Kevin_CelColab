@@ -12,3 +12,4 @@ After oppening every single cabinet in the kitchen i knew i had to go further to
 
 That is the alarm!
 Good Morning !
+"<br><br>I got scared at first but soon realized the noise meant no danger. <br>It was only the lost python spirits that have come to give me their blessing <br>for the rough yet exciting journey that was ahead of me. <br>" 
